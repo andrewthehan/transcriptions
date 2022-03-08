@@ -1,1 +1,17 @@
 # transcriptions
+
+- Ceramic Heart [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1WmRaQnF5dEpSY1E/view?usp=sharing&resourcekey=0-KR39Y2ijx0J98sGXCDz4Ug) [[YouTube]](https://www.youtube.com/watch?v=97-lFFsWwjU)
+- Hitori Nagaragawa [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1Uy1UOF9lUnhETms/view?usp=sharing&resourcekey=0-8frmkVPambvjS0cx4hlDJA) [[YouTube]](https://www.youtube.com/watch?v=kWb6_oEK0bM)
+- Hunter☆Taisou [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1NHhzeGRtMkQ3aG8/view?usp=sharing&resourcekey=0-Zy1u8ab_NwgBBxIDazOTaw) [[YouTube]](https://www.youtube.com/watch?v=IZI73zaprok)
+- Magic of Love [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1NVI3OUU0UDk2WEU/view?usp=sharing&resourcekey=0-QIBevwFW6XBCZ3thssyEpQ) [[YouTube]](https://www.youtube.com/watch?v=o3m5iHU9ayA)
+- Muteki no Soldier [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1UTV1aUlYUUV3NUU/view?usp=sharing&resourcekey=0-SBoXxZ-iOz-KSgzM3qSi4A) [[YouTube]](https://www.youtube.com/watch?v=z3UCEFuOnCA)
+- Niji o Kakeru Senritsu [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1VFpBYVRFMkRDMm8/view?usp=sharing&resourcekey=0-XsdIR4imzT07DRJ9zhvSJQ) [[YouTube]](https://www.youtube.com/watch?v=b-Z1xxs-DOQ)
+- Omoi wo Megurasu 100 no Jishou [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1VmdhSmt3S0hOYWM/view?usp=sharing&resourcekey=0-JFuu775bF1s2EUrEYcHd-A) [[YouTube]](https://www.youtube.com/watch?v=t-lRyK3YcaI)
+- One Day [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1bElobzVXd2Z5c3M/view?usp=sharing&resourcekey=0-z45OWHocC5tWYKC904086w) [[YouTube]](https://www.youtube.com/watch?v=_g4M--B3ryI)
+- Over The Horizon [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1elUxWVRZWDBLNnc/view?usp=sharing&resourcekey=0-dVFg4A06vFj7cjQPybgt6w) [[YouTube]](https://www.youtube.com/watch?v=dir3yUE8w_8)
+- Owari e Mukau Hajimari no Uta [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1NUxOWC13OF9GczA/view?usp=sharing&resourcekey=0-PJApNXeE5OomA8RihuIdyA) [[YouTube]](https://www.youtube.com/watch?v=jIRPgChDNJw)
+- Owari no Sekai Kara [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1RFBtTmlZeVdOaUE/view?usp=sharing&resourcekey=0-Lnia7WUia8Dp4txw2KuGLw) [[YouTube]](https://www.youtube.com/watch?v=WUE8Xy5g8uU)
+- Rainbow [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1OWFNMHQ2ek1PeUE/view?usp=sharing&resourcekey=0-4sOaXq3U1sL8SE487VvT0A) [[YouTube]](https://www.youtube.com/watch?v=GIDq3kbv-7Y)
+- To Aru Kaizoku-Ou no Kimagure [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1bkh5aGFhZW4ySmc/view?usp=sharing&resourcekey=0-42bOsHF0qcmHQw9TOTXmRw) [[YouTube]](https://www.youtube.com/watch?v=S3BX0kYw2Jw)
+- Watashitachi [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1XzQzYUx1QUdicnM/view?usp=sharing&resourcekey=0-pk1U3Z1DeFJjHJ4QKdzz7g) [[YouTube]](https://www.youtube.com/watch?v=7taorGQFFkg)
+- WHITE justice (ballade version) [[PDF]](https://drive.google.com/file/d/0B8yEPDvJLcx1MGV5UkFRUFJEZk0/view?usp=sharing&resourcekey=0-jtqKHQDX-RVNBKiaBnfmGQ) [[YouTube]](https://www.youtube.com/watch?v=2ajMTfxXg04)
